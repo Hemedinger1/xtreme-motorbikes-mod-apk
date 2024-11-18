@@ -151,7 +151,3 @@ Ikuti langkah-langkah berikut untuk menginstal game ini:
 Bagi Anda yang mencari pengalaman bermain motor yang seru dan realistis, **Xtreme Motorbikes MOD APK unlimited money latest version** adalah pilihan yang sempurna.  
 
 Unduh sekarang dari [ModHello](https://modhello.com), situs terpercaya untuk APK game modifikasi. Jelajahi kota, lakukan aksi keren, dan nikmati kebebasan bermain!  
-
---- 
-
-Jika Anda membutuhkan perubahan lebih lanjut, beri tahu saya!
